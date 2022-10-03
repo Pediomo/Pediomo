@@ -6,6 +6,6 @@ I enjoy [writng](https://hackernoon.com/u/Peculiar), [building developer communi
 
 I adore continuous learners. I'm specifically referring to folks that are intentional about their personal growth. 😁
 
-Finally, I'm currently obssessed with all Product Thinking & improving the quality of life of Africans through [Hrvst](https://www.hrvst.market/) 🍀 🌱
+Finally, I'm currently obssessed with all things Product Thinking, & improving the quality of life of Africans through [Hrvst](https://www.hrvst.market/) 🍀 🌱
 
 
