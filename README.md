@@ -1,4 +1,5 @@
-##Hello, My Lord, May I? 👋
+### Hello, My Lord, May I? 👋
+
 Before you is a homosapien that has a knack for learning and doing, and [sharing the knowledge I have](https://hackernoon.com/u/Peculiar). Believe you me, I love managing the development of interesting products to solve real-life problems. I enjoying writng and documenting, building developer communities and sliding my magic fingers on my keyboard till something happens.
 
 I adore continuous learners. I'm specifically referring to folks that are wicked about their personal growth. 😁
